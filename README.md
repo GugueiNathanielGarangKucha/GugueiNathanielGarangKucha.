@@ -19,4 +19,4 @@
 
 ### 📈 Find me on:
 - [LinkedIn](https://www.linkedin.com/in/guguei-nathaniel-garang-kucha-448b52294)
-- 📧 Email: [Your Email Here]
+- 📧 Email: gugueigarangkucha@gmail.com
